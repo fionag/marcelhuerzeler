@@ -9,6 +9,8 @@ permalink: /Ausstellungen/
 {% include figure.html width="100%" file="page_1.jpg" alt="So speaks a Tree" caption="" %}
 
 *So speaks a Tree – Il bosco in officina*  
+Un progetto del / A project by  
+[Museo Hermann Hesse](https://de.hessemontagnola.ch)
 
 5-7 September 2025  
 Garage Collina d’Oro, Via Sant'Abbondio 44, Gentilino
@@ -29,11 +31,6 @@ Führungen mit den Künstler:innen:
 Sa, 11.00 Uhr – mit Valentina Pini  
 So, 16.00 Uhr – mit Sandro Pianetti
 
-Un progetto del / A project by  
-Museo Hermann Hesse 
-Montagnola
-
-[Museo Hermann Hesse](https://de.hessemontagnola.ch)
 
 ## 2015/2016
 
