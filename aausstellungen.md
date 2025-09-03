@@ -4,6 +4,29 @@ title: "Ausstellungen"
 permalink: /Ausstellungen/
 ---
 
+## 2025
+
+*So speaks a Tree – Il bosco in officina*  
+
+6. – 7. September 2025  
+Garage Collina d’Oro, Via Sant'Abbondio 44, Gentilino
+
+Mit der Pop-up-Ausstellung So speaks a Tree – Il bosco in officina verlässt das Museo Hermann Hesse Montagnola die klassischen Museumsräume und betritt neues Terrain: Eine Autowerkstatt wird zum Ort der Begegnung zwischen Kunst, Natur und Menschlichkeit. Dort, wo sonst Motoren, Lack und Räder dominieren, entfaltet sich ein leiser Dialog zwischen zeitgenössischer Kunst und der Sprache der Bäume – inspiriert von Hermann Hesses tiefer Verbundenheit zur Natur.
+
+Den Impuls zum Ausstellungsvorhaben setzte das Werk des 2022 verstorbenen Basler Künstlers Marcel Hürzeler, dessen Skulpturen aus Tessiner Holz die innere Architektur der Materie offenlegen – als würde sie sich selbst erzählen. Seine stille, eindringliche Beziehung zur Natur erinnert in berührender Weise an Hesses eigene Passion für die Bäume. Aus dieser künstlerischen Konstellation entwickelte sich ein vielfältiger Dialog, der weitere Positionen einbezieht: Sandro Pianetti zeigt Skulpturen und Flachreliefs aus im Wald gesammelten Materialien, die durch ungewöhnliche Techniken neu interpretiert werden und deren ursprüngliche Kraft neu erfahrbar machen. Geschnitzte Holzmöbel als Symbol toter Natur und ein lokales Seegras aus Patagonien als Sinnbild lebender Natur sind die Hauptfiguren in Valentina Pinis Film, der anhand der Holzproduktion schweizerischer Eingewanderter in Chiles Wäldern Mitte des 19. Jahrhundert die menschliche Abhängigkeit von Natur und zugleich deren Ausbeutung beleuchtet. Roberto Mucchiut stellt die Bewegung und Wahrnehmung der Materie ins Zentrum seiner Video-Installationen. Sie erforschen feine, mitunter kaum wahrnehmbare Formen des Austauschs zwischen Mensch und Pflanzenwelt. Flavia Arzeni führt uns an den Punkt, an dem organische Materie in ihre letzte Phase eintritt: den Tod – der zugleich den Anfang eines Prozesses vielfältiger Metamorphosen markiert. Und Yann Gross richtet seinen fotografischen Blick auf das Zusammenleben der Bäume selbst – auf jene, die nicht mehr heimisch sind und dennoch Wurzeln schlagen. Seine grossformatige Arbeit zeigt Tessiner Wälder, durchsetzt von Zierpalmen, die aus Gärten entwichen sind und sich unmerklich in die lokale Vegetation einschreiben – stille Zeugen eines ökologischen Wandels, der ebenso poetisch wie verstörend wirkt.
+
+Im intensiven Kontrast zum industriellen Raum – durchdrungen von menschlicher Präsenz, Mobilität und ständigem Wandel – fordern uns die Kunstwerke auf, innezuhalten und zu lauschen: Was will uns die Natur sagen, wenn wir aufhören zu sprechen und beginnen zuzuhören?
+
+Kuratiert von: Marcel Henry & Fiona Geuss
+
+Vernissage: Freitag, 5. September 2025, 17.00 Uhr, mit Apéro  
+Öffnungszeiten: Sa – So, 10.30 – 17.30 Uhr  
+Eintritt frei, freiwillige Spende 
+
+Führungen mit den Künstler:innen:  
+Sa, 11.00 Uhr – mit Valentina Pini  
+So, 16.00 Uhr – mit Sandro Pianetti
+
 ## 2015/2016
 
 5.11.2015-29.2.2016  
