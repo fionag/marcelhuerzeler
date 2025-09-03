@@ -8,7 +8,7 @@ permalink: /Ausstellungen/
 
 *So speaks a Tree – Il bosco in officina*  
 
-6. – 7. September 2025  
+5-7 September 2025  
 Garage Collina d’Oro, Via Sant'Abbondio 44, Gentilino
 
 Mit der Pop-up-Ausstellung So speaks a Tree – Il bosco in officina verlässt das Museo Hermann Hesse Montagnola die klassischen Museumsräume und betritt neues Terrain: Eine Autowerkstatt wird zum Ort der Begegnung zwischen Kunst, Natur und Menschlichkeit. Dort, wo sonst Motoren, Lack und Räder dominieren, entfaltet sich ein leiser Dialog zwischen zeitgenössischer Kunst und der Sprache der Bäume – inspiriert von Hermann Hesses tiefer Verbundenheit zur Natur.
